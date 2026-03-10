@@ -1,0 +1,1 @@
+# beyaz-esya-servisi-ve-yedek-parca-sat-si
